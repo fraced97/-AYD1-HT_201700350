@@ -5,3 +5,7 @@
 | :----: | :----: | :----: | :----: | :----: |
 | Fredy Estuardo Ramírez Moscoso | 201700350 |  23  | framirez2014ig@gmail.com |     fraced97     |
 |                                |           |      |                          |                 |
+
+---
+
+## Synder Group
